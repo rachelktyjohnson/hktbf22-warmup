@@ -5,4 +5,4 @@ Add your name to this list, along with a link to your Treehouse Profile
 
 ---
 
-Rachel Johnson - https://teamtreehouse.com/profiles/rachelktyjohnson
+1. Rachel Johnson - https://teamtreehouse.com/profiles/rachelktyjohnson
