@@ -13,3 +13,4 @@ Travis Alstrand - https://teamtreehouse.com/profiles/travisalstrand
 Geoff Millar - https://teamtreehouse.com/profiles/jajablinky
 Sam Atkinson Modeste - https://teamtreehouse.com/samanthaatkinson  
 Dylan Bailey - https://teamtreehouse.com/profiles/iamdylanbailey
+Tsipporah Christopher - https://teamtreehouse.com/profiles/tsipporahc
